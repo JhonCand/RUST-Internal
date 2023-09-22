@@ -20,7 +20,6 @@
 
 🔥Enjoy and have fun!
 
-2
 
 📌What Does the Rust Free Internal Hack Offer | Features
 ✅Some of the features that Rust Free Internal Hack offers are:
